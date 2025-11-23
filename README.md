@@ -1,0 +1,2 @@
+# CreamyHub-Key
+KEY
